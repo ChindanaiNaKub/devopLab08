@@ -20,6 +20,7 @@
 ![ภาพ](https://github.com/user-attachments/assets/3b9f2742-9874-4501-90c2-816630328706)
 
 6
+![ภาพ](https://github.com/user-attachments/assets/9d00c70f-2779-485d-b542-f8cdad7d14b3)
 
 
 
